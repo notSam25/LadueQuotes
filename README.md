@@ -1,5 +1,6 @@
 # LadueQuotes
- Quotes from LHWHS students and faculty
+ Quotes from LHWHS students and faculty. Credit to @theVerySharpFlat for assisting in compilation of these quotes.
+ 
 ## capital q Quotes
 > "I will do something. I'm getting" - Samyul Wiseman
 > 
