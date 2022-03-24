@@ -25,3 +25,5 @@
 > "am I a weeb if I watch hentai" - Ashmit Tekno
 > 
 > “Listen… I do enjoy me a nice anime girl every so often… but that DOES NOT mean im a weeb. strictly speaking im like halfway there…” - Samuel Wiseman
+> 
+>  "Domestic abuse 😍😍" - Tenny Digglebob
