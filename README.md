@@ -26,4 +26,8 @@
 > 
 > “Listen… I do enjoy me a nice anime girl every so often… but that DOES NOT mean im a weeb. strictly speaking im like halfway there…” - Samuel Wiseman
 > 
->  "Domestic abuse 😍😍" - Tenny Digglebob
+> "Domestic abuse 😍😍" - Tenny Digglebob
+> 
+> "What race do you hate the most? scwartz" - 10E daboobaloo
+> 
+> "Fuck Herr Quinn man/ Cope Quinn man/ Sam is stupid, Quinn man" - Nick
