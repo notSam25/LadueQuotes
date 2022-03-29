@@ -30,4 +30,8 @@
 > 
 > "What race do you hate the most? scwartz" - 10E daboobaloo
 > 
-> "Fuck Herr Quinn man/ Cope Quinn man/ Sam is stupid, Quinn man" - Nick
+> "Fuck Herr Quinn man/ Cope Quinn man/ Sam is stupid, Quinn man" - Nick ?
+> 
+> "Pulled Pork? How about you pull some bitches" - Geoffrey ?
+> 
+> "Sex and gender are the same thing? I dont remember having gender with your mom." Nick ?
