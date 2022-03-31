@@ -37,3 +37,5 @@
 > "Sex and gender are the same thing? I dont remember having gender with your mom." Nick ?
 > 
 > "🔥This deck is insane!!!" - Brian Duchong
+>
+> "Wher abick????/.?.?>!/.>??" - Abick
