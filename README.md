@@ -40,6 +40,6 @@
 > 
 > "Wher abick????/.?.?>!/.>??" - Abick
 > 
-> `<p class="h4"></p>` - Aiden Lambert
+> `<p class="h4"></p>` - Aiden "Klein Kopf" Lampfart
 >
-> "I have nine fingers. I don't count thumbs" - Samuel "Idiot" Wiseman
+> "I have nine fingers. I don't count thumbs" - Samyul Wiseman
