@@ -41,3 +41,5 @@
 > "Wher abick????/.?.?>!/.>??" - Abick
 > 
 > `<p class="h4"></p>` - Aiden Lambert
+>
+> "I have nine fingers. I don't count thumbs" - Samuel "Idiot" Wiseman
