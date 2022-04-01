@@ -43,3 +43,7 @@
 > `<p class="h4"></p>` - Aiden "Klein Kopf" Lampfart
 >
 > "I have nine fingers. I don't count thumbs" - Samyul Wiseman
+> 
+> "Scifi wifi, wireless fi? or wireless" - Abick
+> 
+> "Bruh sound affect in a while true loop" - Samuel Wisemun
