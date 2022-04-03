@@ -50,4 +50,4 @@
 > 
 >  "Bro this music is acctualy fire, but it really kinda sucks" - abik Deezwan
 >  
->  "I have 9 fingers, not includeing the thumbs" - Samuel Visemen
+>  "I have 9 fingers, I dont count the thumbs" - Samuel Visemen
