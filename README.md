@@ -49,3 +49,5 @@
 > "Bruh sound affect in a while true loop" - Samuel Wisemun
 > 
 >  "Bro this music is acctualy fire, but it really kinda sucks" - abik Deezwan
+>  
+>  "I have 9 fingers, not includeing the thumbs" - Samuel Visemen
