@@ -51,4 +51,5 @@
 >  "I have 9 fingers, I dont count the thumbs" - Samuel Visemen
 >  
 >  "Racism very cool😎" - Geoffrey ?
+>  
 >  "White power? White powder??? gimmie that shit." - an addict
