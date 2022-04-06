@@ -51,3 +51,5 @@
 >  "I have 9 fingers, I dont count the thumbs" - Samuel Visemen
 >  
 >  "Racism very cool😎" - Geoffrey ?
+>  
+>  "I want to murder kids" - Hannah Bear
