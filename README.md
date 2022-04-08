@@ -55,3 +55,5 @@
 >  "I want to murder kids" - Hannah Bear
 >  
 >  "I am such a pushover" - Hannah BeaHr
+>  
+>  "You know what I wanna do? I'm gonna crash an airplane into a datacenter" - Aid3n Lampfart
