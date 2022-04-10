@@ -59,3 +59,5 @@
 >  "You know what I wanna do? I'm gonna crash an airplane into a datacenter" - Aid3n Lampfart
 >  
 >  "Only thugs allowed in these DMs. Gay black ones to be specific." - Brine Duchong
+>  
+>  "I cant laugh at this there are no black men shaking there asses ??" - ^^^
