@@ -1,6 +1,5 @@
 # LadueQuotes
- Quotes from LHWHS students and faculty. Credit to @theVerySharpFlat for assisting in compilation of these quotes.
- 
+ Quotes from LHWHS students and faculty. **All quotes are out of context, which is funnier I suppose.** Credit to @theVerySharpFlat for assisting in compilation of these quotes.
 ## capital q Quotes
 > "I will do something. I'm getting" - Samyul Wiseman
 > 
@@ -60,4 +59,4 @@
 >  
 >  "Only thugs allowed in these DMs. Gay black ones to be specific." - Brine Duchong
 >  
->  "I cant laugh at this there are no black men shaking there asses ??" - ^^^
+>  "I cant laugh at this there are no black men shaking there asses ??" - Brine Duchong
