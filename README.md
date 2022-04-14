@@ -62,3 +62,6 @@
 >  "I cant laugh at this there are no black men shaking there asses ??" - Brine Duchong
 >  
 >  "Im homosexual, only for you though" - Aiden Lampfart
+>  
+>  "No cap, I wanna fuck sam in the ass" - AmIr YuKlashev
+>  
