@@ -65,3 +65,4 @@
 >  
 >  "No cap, I wanna fuck sam in the ass" - AmIr YuKlashev
 >  
+>  "I'll glady have sex with him right now!" - Amir YuKlashec
