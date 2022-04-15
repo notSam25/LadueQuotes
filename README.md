@@ -65,4 +65,8 @@
 >  
 >  "No cap, I wanna fuck sam in the ass" - AmIr YuKlashev
 >  
->  "I'm gonna throw my balls at it" - Same Wiseman
+>  "I'm gonna throw my balls at it" - Same ViseMun
+>  
+>  "I'll glady have sex with him right now!" - Amir YuKlashec
+>  
+>  "100% of ladue teachers want to murder children" - Hannuh BeaR
