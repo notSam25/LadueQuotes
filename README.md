@@ -70,3 +70,5 @@
 >  "I'll glady have sex with him right now!" - Amir YuKlashec
 >  
 >  "100% of ladue teachers want to murder children" - Hannuh BeaR
+>  
+>  "You like gay black porn? I can send some to you!" - Nick Rabies
