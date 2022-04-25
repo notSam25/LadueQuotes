@@ -72,3 +72,5 @@
 >  "100% of ladue teachers want to murder children" - Hannuh BeaR
 >  
 >  "You like gay black porn? I can send some to you!" - Nick Rabies
+>  
+>  "Python is better" - Jonah walk
