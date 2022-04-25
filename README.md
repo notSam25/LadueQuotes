@@ -73,6 +73,4 @@
 >  
 >  "You like gay black porn? I can send some to you!" - Nick Rabies
 >  
->  "Python is better" - Noeh walk
->  
->  "I'm not like the other gay black men" - Noah Walk
+>  "Python is better" - Noah walk
