@@ -74,3 +74,5 @@
 >  "You like gay black porn? I can send some to you!" - Nick Rabies
 >  
 >  "Python is better" - Noah walk
+>
+> "Tennis is the most manliest sport" - Ashmit
