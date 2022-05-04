@@ -74,3 +74,7 @@
 >  "You like gay black porn? I can send some to you!" - Nick Rabies
 >  
 >  "Python is better" - Noah walk
+>  
+>  "I HATE jewish people" - Owen Song
+>  
+>  "All asian people look alike" - Owne Sung
