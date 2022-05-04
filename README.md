@@ -75,6 +75,8 @@
 >  
 >  "Python is better" - Noah walk
 >  
+> "Tennis is the most manliest sport" - Ashmit
+>  
 >  "I don't care if you're not gonna be in class. That makes me happy 😈 😈 😈 😈 😈" - Gee Whyte
 >  
 >  "I HATE jewish people" - Owen Song
