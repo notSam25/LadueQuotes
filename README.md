@@ -84,3 +84,5 @@
 >  "All asian people look alike" - Owne Sung
 >  
 >  "I watch hentai when I'm horny, atleast I don't watch gay black me" - Own S0nch
+>  
+>  "Sam, would you have anal with owen?" - Nick Rabit
