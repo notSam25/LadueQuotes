@@ -86,3 +86,5 @@
 >  "I watch hentai when I'm horny, atleast I don't watch gay black me" - Own S0nch
 >  
 >  "Sam, would you have anal with owen?" - Nick Rabit
+>  
+>  "You have to penetrate his ass, and finish on him" -  Nik Rabies
