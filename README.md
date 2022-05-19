@@ -90,3 +90,5 @@
 >  "You have to penetrate his ass, and finish on him" -  Nik Rabies
 >  
 >  "hey thats my xc coach he wips his cock out every practice" - Geodude
+>  
+>  "Just thought about white white people, now I'm sad" - zak barre
