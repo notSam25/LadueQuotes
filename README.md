@@ -92,3 +92,5 @@
 >  "hey thats my xc coach he wips his cock out every practice" - Geodude
 >  
 >  "Just thought about white white people, now I'm sad" - zak barre
+>  
+>  "Ich mag die kinder" - Bobert Quan
