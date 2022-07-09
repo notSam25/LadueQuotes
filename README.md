@@ -1,11 +1,11 @@
 # LadueQuotes
- Quotes from LHWHS students and faculty. **All quotes are out of context, which is funnier I suppose.** Credit to @theVerySharpFlat for assisting in compilation of these quotes.
-## capital q Quotes
+ Quotes from LHWHS students and faculty. **All quotes are out of context** Credit to @theVerySharpFlat for assisting in compilation of these quotes.
+
+## Quotes
+
 > "I will do something. I'm getting" - Samyul Wiseman
 > 
 > "I'm so much more superior. In like two ways. Or maybe three..." - Sameold Wiseman
->
-> "Whos that guy?" - that guy
 > 
 > "We are at different places on the spectrum" - Hannah Behr
 > 
@@ -65,7 +65,7 @@
 >  
 >  "No cap, I wanna fuck sam in the ass" - AmIr YuKlashev
 >  
->  "I'm gonna throw my balls at it" - Same ViseMun
+>  "I'm gonna throw my balls at it" - Sam ViseMun
 >  
 >  "I'll glady have sex with him right now!" - Amir YuKlashec
 >  
@@ -75,22 +75,22 @@
 >  
 >  "Python is better" - Noah walk
 >  
-> "Tennis is the most manliest sport" - Ashmit
+> "Tennis is the most manliest sport" - Ashmit toekisser
 >  
->  "I don't care if you're not gonna be in class. That makes me happy 😈 😈 😈 😈 😈" - Gee Whyte
+>  "I don't care if you're not gonna be in class. That makes me happy 😈 😈 😈 😈 😈" - Garret Wite
 >  
 >  "I HATE jewish people" - Owen Song
 >  
 >  "All asian people look alike" - Owne Sung
 >  
->  "I watch hentai when I'm horny, atleast I don't watch gay black men" - Own S0nch
+>  "I watch hentai when I'm horny, atleast I don't watch gay black men" - Owen Sunk
 >  
 >  "Sam, would you have anal with owen?" - Nick Rabit
 >  
 >  "You have to penetrate his ass, and finish on him" -  Nik Rabies
 >  
->  "hey thats my xc coach he wips his cock out every practice" - Geodude
+>  "hey thats my xc coach, he whips his cock out every practice" - Geodude
 >  
->  "Just thought about white white people, now I'm sad" - zak barre
+>  "Just thought about white white people, now I'm sad" - zak barre7
 >  
 >  "Ich mag die kinder" - Bobert Quan
