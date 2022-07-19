@@ -98,3 +98,5 @@
 >  "But how do you make a pointer though?" - Noah Woke
 >  
 >  "I added multiplayer and now the entire code broke" - Knowah Woke
+>  
+>  "Light theme isn't that bad okay? Thats honestly" Know Of A Wolk
