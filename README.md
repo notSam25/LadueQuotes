@@ -94,5 +94,7 @@
 >  "Just thought about white white people, now I'm sad" - zak barre7
 >  
 >  "Ich mag die kinder" - Bobert Quan
-
+>
 >  "But how do you make a pointer though?" - Noah Woke
+>  
+>  "I added multiplayer and now the entire code broke" - Knowah Woke
