@@ -104,3 +104,5 @@
 >  "Can't I just appriciate another mans deck?" - Keanman Ryan
 >
 >  "This kid is getting fucked though" - Matan Cone
+>  
+>  "Wanna watch me dump on some kids?" - mitten cohan
