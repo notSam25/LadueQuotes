@@ -108,3 +108,5 @@
 >  "Wanna watch me dump on some kids?" - mitten cohan
 >
 >  "There are bad races" - Erik Wung
+>
+>  "printf is android println in apple" - Arik WanG
