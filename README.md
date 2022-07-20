@@ -110,3 +110,5 @@
 >  "There are bad races" - Erik Wung
 >
 >  "printf is android println in apple" - Arik WanG
+>  
+>  "*Dies of dick overdose*" - Abik Duwan
